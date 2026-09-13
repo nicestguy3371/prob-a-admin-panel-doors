@@ -1,3 +1,5 @@
-so yea its a admin panel doors (roblox script)
+so i privated it before because i trought that it will be patched but it still working but it on old version so hi
 
-also ignore that its wearedevs.com thing i mean just dont care
+yea now it works
+fr
+fr
